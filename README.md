@@ -1,1 +1,0 @@
-# file-C-Users-lenovo-Desktop-gayatri-gayatri.html
